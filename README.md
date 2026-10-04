@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CAAM910914MMCSRN02
+CAAM910914MMCSRN02
